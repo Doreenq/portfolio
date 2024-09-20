@@ -12,8 +12,6 @@ _**Aug. 2024 to May. 2025** | Illinois, United States_
 
 ### Shanghai University of International Business and Economics  
 **Bachelor of Management in Business Administration**  
-_**Oct. 2019 to Jun. 2023** | Shanghai, China_  
-- GPA: 3.71/4.0 (Rank: 3rd out of 47 students)  
 - Received 6 Outstanding Student Scholarships
 
 ## about me
